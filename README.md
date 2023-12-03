@@ -1,1 +1,1 @@
-# free-chat-gpt
+www.speedgpt.pro
